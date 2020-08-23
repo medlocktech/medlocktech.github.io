@@ -1,1 +1,0 @@
-# medlocktech.github.io
